@@ -1,0 +1,1 @@
+chmodla ilgili bişi yapılacak
